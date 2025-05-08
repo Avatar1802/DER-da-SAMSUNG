@@ -1,0 +1,1 @@
+# DER-da-SAMSUNG
